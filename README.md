@@ -1,1 +1,1 @@
-it is for practice and skill improvement of data analust
+it is for practice and skill improvement of data analyst
